@@ -1,0 +1,3 @@
+Hardworking
+Focused
+Interested
